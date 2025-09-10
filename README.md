@@ -6,7 +6,7 @@
 
 ##
 
-Hi, I'm Sabrina aka Gen! This is my Alt account! I will not follow back but on my main i can follow, This is just an active account dispite my main; This is just for silly and fun! ^_^
+Hi, I'm Sabrina aka Gen! This is my Alt account! I will not follow back but on my main i can follow, This is just an active account dispite my main that will rarely update; also just for silly and fun! I hope you like it because I have a fine feeling about it, Look on my strawpage if you want! ^_^
 
 
 ![blinkiesCafe-NA](https://github.com/user-attachments/assets/427d6621-b9fb-4b3e-bedb-7aaf1d6cfe52)
