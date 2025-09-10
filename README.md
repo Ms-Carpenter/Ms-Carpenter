@@ -2,7 +2,7 @@
 
 ## ![blinkiesCafe-a5](https://github.com/user-attachments/assets/633c5695-edf7-4760-923a-06d87d3a45d6)
 
-![TextStudio-Typewriter](https://github.com/user-attachments/assets/739b3a7b-ce27-4264-8bd4-f0fc6183f3c1)
+![TextStudio-Typewriter (2)](https://github.com/user-attachments/assets/759cc3e8-840c-45a0-9fb1-e313ad623885)
 
 ##
 
