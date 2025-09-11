@@ -1,3 +1,4 @@
+IMPORTANT SHOUT OF THE DAY 9/11: Let us respect, and mourn those we lost on the incident of 9/11. IT shouldn't be a laughing matter to anyone, The loss of many people is truly horrifying, I am sorry.
 ![blinkiesCafe-fC](https://github.com/user-attachments/assets/b36cb1a1-b400-43e3-96d9-0ec144141f9e)
 
 ## ![blinkiesCafe-a5](https://github.com/user-attachments/assets/633c5695-edf7-4760-923a-06d87d3a45d6)
