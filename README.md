@@ -1,4 +1,4 @@
-IMPORTANT SHOUT OF THE DAY 9/12: Umm... like 6 7
+IMPORTANT SHOUT OF THE DAY 9/15: COokievision please!! gives you plate with nothing on it and awaits for ur content
 
 ![blinkiesCafe-fC](https://github.com/user-attachments/assets/b36cb1a1-b400-43e3-96d9-0ec144141f9e)
 
