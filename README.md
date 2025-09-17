@@ -1,4 +1,4 @@
-IMPORTANT SHOUT OF THE DAY 9/16: why is 6 scared of 7? becuase 6 7
+IMPORTANT SHOUT OF THE DAY 9/17: Currently grounded for apparently idk lmao
 
 ![blinkiesCafe-fC](https://github.com/user-attachments/assets/b36cb1a1-b400-43e3-96d9-0ec144141f9e)
 
