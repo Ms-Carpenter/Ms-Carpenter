@@ -1,4 +1,4 @@
-IMPORTANT SHOUT OF THE DAY 9/17: Currently grounded for apparently idk lmao
+IMPORTANT SHOUT OF THE DAY 9/24: wow what a day wow wow wow... wow... wow ok wow ok wow wow js wow ok wow...
 
 ![blinkiesCafe-fC](https://github.com/user-attachments/assets/b36cb1a1-b400-43e3-96d9-0ec144141f9e)
 
