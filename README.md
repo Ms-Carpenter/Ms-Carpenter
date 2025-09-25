@@ -1,4 +1,4 @@
-IMPORTANT SHOUT OF THE DAY 9/24: wow what a day wow wow wow... wow... wow ok wow ok wow wow js wow ok wow...
+IMPORTANT SHOUT OF THE DAY 9/25: There's only 3 types of people... : Those who can count, and those who can't.
 
 ![blinkiesCafe-fC](https://github.com/user-attachments/assets/b36cb1a1-b400-43e3-96d9-0ec144141f9e)
 
