@@ -21,3 +21,6 @@ Hi, I'm Sabrina aka Gen! This is my Alt account! I will not follow back but on m
 
 
 ![sabrina-carpenter](https://github.com/user-attachments/assets/fab7e6b0-e156-45d9-9aff-798396584fe0)
+
+<img width="588" height="488" alt="Screenshot 2025-09-25 10 12 42 AM" src="https://github.com/user-attachments/assets/4a2020b2-c52b-488f-8a0a-c3bd42d60f1d" />
+
