@@ -1,4 +1,4 @@
-IMPORTANT SHOUT OF THE DAY 9/25: There's only 3 types of people... : Those who can count, and those who can't.
+IMPORTANT SHOUT OF THE DAY 10/1: Spooky month offical
 
 ![blinkiesCafe-fC](https://github.com/user-attachments/assets/b36cb1a1-b400-43e3-96d9-0ec144141f9e)
 
