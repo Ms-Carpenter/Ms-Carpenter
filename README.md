@@ -1,4 +1,6 @@
-IMPORTANT SHOUT OF THE DAY 10/1: Spooky month offical
+IMPORTANT SHOUT OF THE DAY 10/7: hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi 
+hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi 
+
 
 ![blinkiesCafe-fC](https://github.com/user-attachments/assets/b36cb1a1-b400-43e3-96d9-0ec144141f9e)
 
