@@ -1,8 +1,10 @@
 ![vine27](https://github.com/user-attachments/assets/5d849ad0-ef7f-4430-af97-777470b7fea7)
 
 
-IMPORTANT SHOUT OF THE DAY 10/7: hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi 
-hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi hi 
+IMPORTANT SHOUT OF THE DAY 10/7: I changed festivespooks pfp to wednesday and later on i realized... My pfps are TECHNICALLY matching.. hahaha
+
+BOO!!!! scares you with sabrina and jenna ig!!!
+<img width="100" height="100" alt="Screenshot 2025-10-14 1 27 09 PM" src="https://github.com/user-attachments/assets/717f93a3-af97-48eb-8426-9df267942a80" />
 
 ![vine27](https://github.com/user-attachments/assets/e6192867-9026-45f5-9be6-9c053e36e0eb)
 
