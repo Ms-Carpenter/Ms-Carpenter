@@ -40,7 +40,6 @@ Hi, I'm Sabrina aka Gen! This is my Alt account! I will not follow back but on m
 ![0bf8b17f](https://github.com/user-attachments/assets/761f8820-e6ed-4628-9d68-3cf164a4e156)
 ![202e46fb](https://github.com/user-attachments/assets/701e344b-60d3-4a36-b81a-0d8e708f4bb3)
 ![b1723e78-87fc-4dad-b3d9-226a09f480de](https://github.com/user-attachments/assets/fe0d67f8-ae0a-40ab-8bcd-426f9add7192)
-![Tumblr_l_339783785453311](https://github.com/user-attachments/assets/694f8b72-ac42-418b-b49a-e75f8353a300)
 ![1d4ae1ad-2f68-4224-a28c-91f0e536695d](https://github.com/user-attachments/assets/c4654c4d-7fa7-46cd-8d1f-6a79024ade1d)
 ![tumblr_p7yl6kqFqZ1vmrb8ao6_250](https://github.com/user-attachments/assets/398e071b-0ad5-4999-a91f-8ad5cdbea70b)
 ![tumblr_psc2jh0PMG1wbcinp_250](https://github.com/user-attachments/assets/49c1e368-be28-4318-995f-c198f6a2e380)
@@ -65,3 +64,6 @@ Hi, I'm Sabrina aka Gen! This is my Alt account! I will not follow back but on m
 
 ![pawangbanner](https://github.com/user-attachments/assets/85662a8b-9cb6-483d-9db7-eaa2a1e35a54)
 
+
+
+![Tumblr_l_339783785453311](https://github.com/user-attachments/assets/01b53f24-79e2-45ff-bdb3-ef9235a8581b)
