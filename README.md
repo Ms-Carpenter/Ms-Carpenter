@@ -1,8 +1,7 @@
 ![vine27](https://github.com/user-attachments/assets/5d849ad0-ef7f-4430-af97-777470b7fea7)
 
 
-IMPORTANT SHOUT OF THE DAY 10/20: I cut my front hair bangs becauuussee I got a comb stuck in my hair by lollygagging; so now they look like chopped salad or a cowlick so yay....!!!
-, I changed festivespooks pfp to wednesday and later on i realized... My pfps are TECHNICALLY matching.. hahaha
+IMPORTANT SHOUT OF THE DAY 11/17: I don't think, I am a great person. I am unsure at the moment.
 
 BOO!!!! scares you with sabrina and jenna ig!!!
 <img width="100" height="100" alt="Screenshot 2025-10-14 1 27 09 PM" src="https://github.com/user-attachments/assets/717f93a3-af97-48eb-8426-9df267942a80" />
