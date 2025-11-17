@@ -3,9 +3,6 @@
 
 IMPORTANT SHOUT OF THE DAY 11/17: I don't think, I am a great person. I am unsure at the moment.
 
-BOO!!!! scares you with sabrina and jenna ig!!!
-<img width="100" height="100" alt="Screenshot 2025-10-14 1 27 09 PM" src="https://github.com/user-attachments/assets/717f93a3-af97-48eb-8426-9df267942a80" />
-
 ![vine27](https://github.com/user-attachments/assets/e6192867-9026-45f5-9be6-9c053e36e0eb)
 
 
@@ -49,8 +46,6 @@ Hi, I'm Sabrina aka Gen! This is my Alt account! I will not follow back but on m
 
 
 ![e21](https://github.com/user-attachments/assets/73e88f31-4749-4758-8713-6e2478c160c1)
-
-![slipknot](https://github.com/user-attachments/assets/0e311ad3-04ce-4676-abc6-29746cf6f998) <- for <Knaught33
 
 
 
