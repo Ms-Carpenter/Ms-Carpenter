@@ -1,7 +1,7 @@
 ![vine27](https://github.com/user-attachments/assets/5d849ad0-ef7f-4430-af97-777470b7fea7)
 
 
-IMPORTANT SHOUT OF THE DAY 11/17: I don't think, I am a great person. I am unsure at the moment.
+IMPORTANT SHOUT OF THE DAY 11/29: It's almost my birthday, and I miss him. I wanted him to be with me then, to hold my hand and see the beauty of my new maturity, my growth. Oh well. The year is going by, and I've yet actually to feel the touch of affection from anyone... Brothers, Dads, Friends, You. I want to grow and get this out of my head eventually, but you know what, I can't. I can't because I am the reason for the loss of your own self, I am the reason for your disinterest, I am the reason it's gone, and I know it. Get up, dry your eyes, move on, you'll find better things. Better friends. Better family. Better life. I must've just let... Real fustration out on you. Now I am sorry, K.
 
 ![vine27](https://github.com/user-attachments/assets/e6192867-9026-45f5-9be6-9c053e36e0eb)
 
