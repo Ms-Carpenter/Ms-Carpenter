@@ -1,7 +1,7 @@
 ![vine27](https://github.com/user-attachments/assets/5d849ad0-ef7f-4430-af97-777470b7fea7)
 
 
-IMPORTANT SHOUT OF THE DAY 12/1: It's almost my birthday, and I miss him. I wanted him to be with me then, to hold my hand and see the beauty of my new maturity, my growth. Oh well. The year is going by, and I've yet actually to feel the touch of affection from anyone... Brothers, Dads, Friends, You. I want to grow and get this out of my head eventually, but you know what, I can't. I can't because I am the reason for the loss of your own self, I am the reason for your disinterest, I am the reason it's gone, and I know it. Get up, dry your eyes, move on, you'll find better things. Better friends. Better family. Better life. I must've just let... Real fustration out on you. Now I am sorry, K. (this message is mainly for all and another.
+IMPORTANT SHOUT OF THE DAY 12/8: Oh nevermind, My friends showed me your problems... Kinda weird asl that you have 394820938 billion fic wives over ur actual js like another ex of mine ;-;
 
 ![vine27](https://github.com/user-attachments/assets/e6192867-9026-45f5-9be6-9c053e36e0eb)
 
