@@ -1,7 +1,7 @@
 ![vine27](https://github.com/user-attachments/assets/5d849ad0-ef7f-4430-af97-777470b7fea7)
 
 
-IMPORTANT SHOUT OF THE DAY 12/8: Oh nevermind, My friends showed me your problems... Kinda weird asl to be calling other people weird when YOU are just as weird as them .. the fact you have 394820938 billion fic wives over ur actual js like another ex of mine ;-; dont ever come near me or speak of me with your gooning yap and your need for "love". You overdramatic teen.
+IMPORTANT SHOUT OF THE DAY 12/10: Dance and wiffles lalala ur a fart smella, im a smart fella!!!
 
 <img width="237" height="212" alt="Screenshot 2025-12-08 2 11 51 PM" src="https://github.com/user-attachments/assets/9c556bcf-6698-4f27-8c4c-ed02d68d8b5c" />
 
