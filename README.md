@@ -1,9 +1,7 @@
 ![vine27](https://github.com/user-attachments/assets/5d849ad0-ef7f-4430-af97-777470b7fea7)
 
 
-IMPORTANT SHOUT OF THE DAY 12/10: Dance and wiffles lalala ur a fart smella, im a smart fella!!!
-
-<img width="237" height="212" alt="Screenshot 2025-12-08 2 11 51 PM" src="https://github.com/user-attachments/assets/9c556bcf-6698-4f27-8c4c-ed02d68d8b5c" />
+IMPORTANT SHOUT OF THE DAY 12/10: Pssstt..!! I was just testing! testing! stop stalking my account. You know who I am talking to. 👀
 
 
 ![vine27](https://github.com/user-attachments/assets/e6192867-9026-45f5-9be6-9c053e36e0eb)
