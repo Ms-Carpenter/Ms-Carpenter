@@ -1,8 +1,7 @@
 ![vine27](https://github.com/user-attachments/assets/5d849ad0-ef7f-4430-af97-777470b7fea7)
 
 
-IMPORTANT SHOUT OF THE DAY 12/10: Pssstt..!! I was just testing! testing! stop stalking my account. You know who I am talking to. 👀
-
+IMPORTANT SHOUT OF THE DAY 12/29: Dead on the big 2025 I didn't even last a year lmao
 
 ![vine27](https://github.com/user-attachments/assets/e6192867-9026-45f5-9be6-9c053e36e0eb)
 
