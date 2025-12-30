@@ -6,18 +6,31 @@ uhh to those ppl on the big 25 ending, This goes out to like. Severalll..... ppl
 Just you ruined me, nothing more. . . but genuinely I need to like- let this out some where.
 
 You ruined strawberrycookie for me.
+
 You ruined Looey's entire exsistence for me.
+
 You ruined my self confidence.
+
 You ruined my social life online.
+
 You ruined my comfortablity in public.
+
 You ruined me genuinely having ice cubes around me for your humility jokes.
+
 You ruined my friend group.
+
 You ruined my life.
+
 You ruined my chance to have a perfect childhood.
+
 You ruined my chance of keeping my oldest friends I loved the most.
+
 You ruined me, You made me insensitive, Thinking I do everything wrong, Thinking I am a bad person but I am just a dumb teenager who is still learning?
+
 You ruined my sense of humor
-You ruined most of my fandoms I was in.
+
+You ruined most of my fandoms I was in or wanted to be in.
+
 
 🫰 🤙 peace out bru and don't let those obstacles stop you from acknowledging the fact you can always get up ❤
 
