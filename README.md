@@ -7,7 +7,7 @@ Just you ruined me, nothing more. . . but genuinely I need to like- let this out
 
 You ruined strawberrycookie for me.
 
-You ruined Looey's entire exsistence for me.
+You ruined Looey's entire exsistence for me. (never u mental ily 🫰
 
 You ruined my self confidence.
 
