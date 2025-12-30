@@ -4,6 +4,7 @@
 IMPORTANT SHOUT OF THE DAY 12/30:
 uhh to those ppl on the big 25 ending, This goes out to like. Severalll..... ppl.
 Just you ruined me, nothing more. . . but genuinely I need to like- let this out some where cuz 89% of my ops wished me a day where I am just not feeling it, First of all: Fuck you ops 🖕
++Haley because I JATE u /j
 
 You ruined strawberrycookie for me.
 
