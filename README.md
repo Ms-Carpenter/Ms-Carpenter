@@ -25,7 +25,7 @@ You ruined my chance to have a perfect childhood.
 
 You ruined my chance of keeping my oldest friends I loved the most.
 
-You ruined me, You made me insensitive, Thinking I do everything wrong, Thinking I am a bad person but I am just a dumb teenager who is still learning?
+You ruined me, You made me insensitive, Thinking I do everything wrong, Thinking I am a bad person but I am just a dumb teenager who is still learning? I constantly antagonize people when I don't mean to, It just comes out and I already say it. It is a shitty way to cope.
 
 You ruined my sense of humor
 
