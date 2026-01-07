@@ -1,39 +1,7 @@
 ![vine27](https://github.com/user-attachments/assets/5d849ad0-ef7f-4430-af97-777470b7fea7)
 
 
-IMPORTANT SHOUT OF THE DAY 12/30:
-uhh to those ppl on the big 25 ending, This goes out to like. Severalll..... ppl.
-Just you ruined me, nothing more. . . but genuinely I need to like- let this out some where cuz 89% of my ops wished me a day where I am just not feeling it, First of all: Fuck you ops 🖕
-+Haley because I JATE u /j
-
-You ruined strawberrycookie for me.
-
-You ruined Looey's entire exsistence for me. (never u mental ily 🫰
-
-You ruined my self confidence.
-
-You ruined my social life online.
-
-You ruined my comfortablity in public.
-
-You ruined me genuinely having ice cubes around me for your humility jokes.
-
-You ruined my friend group.
-
-You ruined my life.
-
-You ruined my chance to have a perfect childhood.
-
-You ruined my chance of keeping my oldest friends I loved the most.
-
-You ruined me, You made me insensitive, Thinking I do everything wrong, Thinking I am a bad person but I am just a dumb teenager who is still learning? I constantly antagonize people when I don't mean to, It just comes out and I already say it. It is a shitty way to cope.
-
-You ruined my sense of humor
-
-You ruined most of my fandoms I was in or wanted to be in.
-
-
-🫰 🤙 peace out bru and don't let those obstacles stop you from acknowledging the fact you can always get up ❤
+IMPORTANT SHOUT OF THE DAY 12/31: Taunie from Pokemon Legend: Z-A is so peak... my #1 player ragebaiter munchkins 😻😻 /hj
 
 ![vine27](https://github.com/user-attachments/assets/e6192867-9026-45f5-9be6-9c053e36e0eb)
 
